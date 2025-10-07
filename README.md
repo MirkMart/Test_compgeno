@@ -1,5 +1,2 @@
 # Test_compgeno
 hjsdfhsdfohsfdhdfshodshodsfhoefwhb
-weojhfwofooerg
-rwohiroirgogragre
-rejgofghorgohrgohrgo
